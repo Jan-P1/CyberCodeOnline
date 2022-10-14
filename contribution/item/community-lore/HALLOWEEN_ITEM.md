@@ -1,0 +1,3 @@
+An actual pumpkin, carved with a scary face. For some reason, they pop up all over the city, every year for the entire month of october.
+Nobody knows who or what makes them, how they are spread literally all over the place, how they don't go bad until the first day of november...
+It's almost like a creeptastic halloween miracle!
