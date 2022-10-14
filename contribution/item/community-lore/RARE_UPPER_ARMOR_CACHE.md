@@ -1,0 +1,3 @@
+The cache looks pretty high end. However, any identifying markers have been scratched off or covered with paint.
+Instead, it now sports a clearly (badly) hand-painted label saying 'Hi qulity bodi amor',
+indicating whoever gave it the paint job was a child, poorly educated or on drugs. Maybe all of those...
