@@ -1,1 +1,3 @@
-The Upgrade Modual Cache, a simple device with a multitude of potential uses. Its quite lite and fairly small in size. You need a special 3d printer to be able to use it. You know that it provides a simple yet effective way to enhance your weapons.
+This is an incredibly rare sight! Your mother's uncle's cousin 3 removed claims he knows a guy who worked at
+a freightyard where these were loaded onto a PMCs transporter, under the watch of multiple armed operatives.
+These mods are so high quality, they could turn a spoon into a decent firearm!
