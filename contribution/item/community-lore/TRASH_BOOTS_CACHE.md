@@ -2,6 +2,9 @@
 
 They say one man's trash is another man's treasure… 
 
-These boots are definitely NOT ideal. You see visible signs of wear and tear. It reeks of dead sewer rat, and you notice a large portion of the soles missing from one of the boots. Judging from the layers of dust and debris, you understand that these have been abandoned for a couple years.
+This cache holds the information for printing shoes of the absolutely lowest quality. Probably. This kind of cache seems to corrupt all too often.
 
-However, it's better than nothing, right?...
+The shoes this prints are definitely not ideal. They never seem to fit properly. Sometimes they print as a shoe-shaped fabric-blobs.
+Some people even claim they got blisters from just putting the printed shoes on! The manufacturer however claims faulty printing material was at fault and that they are all just rumors...
+
+You are likely better off wrapping your feet in bandages or old, worn t-shirts. However, it's better than nothing, right?...
