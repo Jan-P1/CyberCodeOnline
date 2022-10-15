@@ -142,6 +142,7 @@ CeceCat
 [CelesMeh](https://www.instagram.com/celesmeh)
 Exca
 [Grrimnir](https://github.com/kevinguyer)
+[Jan-P1](https://github.com/Jan-P1)
 JashinL
 [Johnruby](https://github.com/johnruby)
 [Leviaiz](https://github.com/rewlf2)
